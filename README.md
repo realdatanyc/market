@@ -1,5 +1,7 @@
 # market
 
+[Upper West Side - 500k to 750k -StreetEasy](https://streeteasy.com/1-bedroom-apartments-for-sale/uws/price:500000-750000?view=map)
+
 [126 West 73rd Street bldg - UrbanDigs](https://www.urbandigs.com/for-sale-manhattan-new-york/?buildings_list=126%20WEST%2073%20STREET&is_shared=false)
 
 [405 West 57th Street #3B - UrbanDigs](https://www.urbandigs.com/building/405-west-57-street/3b/sale-listing/?agentid=32755)
