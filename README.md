@@ -1,7 +1,9 @@
 # market
 
 [405 West 57th Street #3H](https://streeteasy.com/building/405-west-57-street-new_york/3h)
+
 [405 West 57th Street #3B](https://streeteasy.com/building/405-west-57-street-new_york/3b)
+
 [405 West 57th Street - Building - LineCity](https://www.linecity.com/building/892538/405-West-57th-Street-Hells-Kitchen-Co-op)
 
 [300 West 110th Street - LineCity](https://www.linecity.com/building/207138/Towers-on-the-Park-300-West-110th-Street-Central-Park-West-Condo)
