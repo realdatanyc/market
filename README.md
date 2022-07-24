@@ -3,6 +3,8 @@
 
 [Stock Market - Alpine](https://youtu.be/H07MHdBlL10)
 
+[Portugal - Sotheby's Real Estate](https://www.sothebysrealty.com/eng/sales/pr-prt?gclid=Cj0KCQjw8uOWBhDXARIsAOxKJ2EymZiwmVO81D3X9x-3LR3DecK1Ya4pKYVQkiTRn_A_lco1GID8N4oaAu1oEALw_wcB&gclsrc=aw.ds)
+
 [150 East 57th Street #12B | 2BR/2BA | $5,900](https://streeteasy.com/building/150-east-57-street-new_york/14b)
 
 [405 West 57th Street #3H](https://streeteasy.com/building/405-west-57-street-new_york/3h)
