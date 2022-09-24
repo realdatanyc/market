@@ -1,5 +1,6 @@
 # market
 
+[NYC Rolling Sales Data](https://www1.nyc.gov/site/finance/taxes/property-rolling-sales-data.page)
 
 [Stock Market - Alpine](https://youtu.be/H07MHdBlL10)
 
